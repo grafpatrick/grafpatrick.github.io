@@ -1,1 +1,0 @@
-# grafpatrick.github.io
